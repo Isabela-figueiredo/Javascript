@@ -1,0 +1,6 @@
+# Exercício 1
+
+#Exercício 2
+alternativa e 
+
+#Exercício 4 
