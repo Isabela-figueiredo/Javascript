@@ -7,3 +7,6 @@ alternativa e
 Exercício 3
 
 Exercício 4
+alternativa c
+
+Exercício 5 
