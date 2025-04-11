@@ -5,3 +5,5 @@ Exercício 2
 alternativa e 
 
 Exercício 3
+
+Exercício 4
